@@ -1,6 +1,6 @@
-<h1 align="center"><b>😈 𝙎𝙚𝙢𝙭𝙓𝙎𝙥𝙖𝙢🔥💫 😈</b></h1>
+<h1 align="center"><b>😈 𝑴𝑬𝑴𝑰𝑪_𝑺𝑷𝑨𝑴𝑩𝑶𝑻𝑺🔥💫 😈</b></h1>
 
-<h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
+<h4 align="center"> 𝐉𝐎𝐊𝐄𝐑 𝐎𝐏</h4>
 
 <p align="center"><a href="https://t.me/rudra_hun_vaii"><img src="https://te.legra.ph/file/91d82bf74b7a75468f5ef.jpg" width="400"></a></p>
 
